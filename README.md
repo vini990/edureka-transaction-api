@@ -1,2 +1,0 @@
-# suresh-techs
-SureshTechs Websites
